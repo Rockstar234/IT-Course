@@ -1,3 +1,3 @@
 # IT-Course
 
-eduard pidr 
+
